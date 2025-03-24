@@ -1,0 +1,1 @@
+# Finansal-Veri-G-rselle-tirme
